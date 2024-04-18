@@ -1,1 +1,0 @@
-# ipekeyboard-privacy-policy
